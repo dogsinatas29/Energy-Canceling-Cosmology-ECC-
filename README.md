@@ -3,7 +3,7 @@
 **Energy-Canceling Cosmology: A Study on Negative Mass Superposition and Cosmic Chronology Extension**
 
 **Date:** 2026. 01. 18.  
-**Author:** [사용자 성함 기입]  
+**Author:** Dogsinatas29
 **Subject:** Theoretical Physics & Cosmology
 
 ---
